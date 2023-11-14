@@ -1,0 +1,1 @@
+# adez_store
